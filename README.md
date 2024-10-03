@@ -1,0 +1,1 @@
+<a href="https://bonershop.com/">Bonershop - generic cialis & viagra shop online</a> is accredited by the International Association of Licensed Online Pharmacies (IALOP), ensuring that our products are of the highest quality. You can trust us to provide safe, reliable, and affordable generic ED medications like Viagra and Cialis with complete discretion.
